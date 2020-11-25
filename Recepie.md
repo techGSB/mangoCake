@@ -1,0 +1,3 @@
+Dissolve the gelatine in 1/2 cup water over a pan of hot water. Blend the grated paneer, Nestlé MILKMAID, dissolved gelatine and mango essence in a blender or food processor.
+Add mango pieces and blend for another minute, saving some pieces for decoration. Whip the cream well and gently fold into the mixture.
+Pour into a wet mould*. Leave to set in the refrigerator, when set, unmould, cut into squares/ wedges. Decorate with mango pieces and serve chilled.
